@@ -1,0 +1,2 @@
+# managerial-case-study
+skill
